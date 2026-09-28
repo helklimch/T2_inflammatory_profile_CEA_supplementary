@@ -1,1 +1,3 @@
 # T2_inflammatory_profile_CEA_supplementary
+
+[CEA_T2_inflammatoryprofile_supplementary_onlinerespository.docx](https://github.com/user-attachments/files/32731499/CEA_T2_inflammatoryprofile_supplementary_onlinerespository.docx)
